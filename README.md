@@ -1,1 +1,0 @@
-# kakutyou-fundingccu8a
